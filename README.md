@@ -8,7 +8,4 @@
 
 ⚡ Fun fact: My first website said “under construction” for nearly a full year… because I forgot to update the index page.
 
----
 
-📬 Wanna connect?  
-Hit me up: **contact@hazhir-ahmed.net**
